@@ -1,0 +1,1 @@
+I'm changing my career because I'm ready for a new challenge and really wanted to learn something new. Completely new. I have not had experience with coding outside of MS Excel. And I've only ever really scraped the surface of Excel. Like, a tiny little scratch on the massive iceberg.
